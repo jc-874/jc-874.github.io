@@ -1,7 +1,5 @@
 
 
-[![jc-874]()](https://github.com/jc-874)
-
 He is currently a Phd student in the Shanghai Center for Mathematical Sciences at Fudan University.
 
 #### Contact
