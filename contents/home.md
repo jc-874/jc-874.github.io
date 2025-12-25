@@ -4,7 +4,7 @@ He is currently a Phd student in the Shanghai Center for Mathematical Sciences a
 
 #### Contact
 
-Email: jczhang24[at]m.fudan.edu.cn
+Email: jczhang24@m.fudan.edu.cn
 
 #### Education
 PhD of Pure Mathematics, Shanghai Center for Mathematical Sciences, Fudan University, 2024—2029*.\
