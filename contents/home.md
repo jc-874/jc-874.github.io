@@ -1,6 +1,6 @@
 
 
-He is currently a Phd student in the Shanghai Center for Mathematical Sciences at Fudan University.
+I am a Phd student in the Shanghai Center for Mathematical Sciences at Fudan University.
 
 #### Contact
 
